@@ -1,5 +1,5 @@
 ###EMILE BLANC
-######blanc-b@hotmail.com – (813) 446-3474 – linkedin.com/emileblanc
+#######blanc-b@hotmail.com – (813) 446-3474 – linkedin.com/emileblanc
 ---
 
 EDUCATION	University of South Florida, St. Petersburg 	                                     `		                 2015
